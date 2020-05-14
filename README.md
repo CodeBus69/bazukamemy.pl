@@ -1,0 +1,1 @@
+# bazukamemy.pl
